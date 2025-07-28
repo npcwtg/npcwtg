@@ -1,4 +1,4 @@
-- 👋 Yo, Nishan here
+- 👋  Nishan here
 - reach me at nishan.poochengal@wisetechglobal.com
 
 <!---
